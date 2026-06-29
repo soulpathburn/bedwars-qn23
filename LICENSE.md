@@ -1,4 +1,4 @@
-#  
+#  bedwars Script advanced is the best bedwars Script, featuring aimbot and teleport. Safe and powerful for all your needs.
 
 
 
